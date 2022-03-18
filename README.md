@@ -4,7 +4,7 @@ Computer Engineering Major
 
 University of Cincinnati
 
-Class of 2021
+Class of 2024
 
 
 pohlca@mail.uc.edu
