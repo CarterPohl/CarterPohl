@@ -6,5 +6,4 @@ University of Cincinnati
 
 Class of 2024
 
-
-pohlca@mail.uc.edu
+carterpohl7@gmail.com
