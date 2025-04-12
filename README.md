@@ -1,9 +1,4 @@
 Carter Pohl
 
-Computer Engineering Major
-
+B.S. Computer Engineering Major
 University of Cincinnati
-
-Class of 2024
-
-carterpohl7@gmail.com
