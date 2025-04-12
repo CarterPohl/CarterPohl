@@ -1,4 +1,5 @@
 Carter Pohl
 
-B.S. Computer Engineering Major
+B.S. Computer Engineering
+
 University of Cincinnati
